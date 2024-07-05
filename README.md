@@ -1,6 +1,6 @@
 quickie pt info about me, for general stuff please check my rentries!!
 
-• im always with someone, but by the rare chance i happen 2 be alone feel free 2 cuddle with me!! no need 2 ask
+• im always with someone, but by the rare chance i happen 2 be completely alone feel free 2 cuddle with me!! no need 2 ask either if i have c+h :3
 
 • if im not responding im definitely just doing something at th moment!! just wait a little bit..
 
