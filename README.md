@@ -11,6 +11,9 @@ quickie pt info about me, for general stuff please check my rentries!!
 • sorry if it seems like i dislike you or uncomfy around you i promise thats not th case!! im just awkward and nervous
 
 ° i also wont talk very much..again, just nervous
+
+
+Pretty much always by my fp 24/7, if i move away from you im sorry..
 <!--
 **shuribox/shuribox** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
