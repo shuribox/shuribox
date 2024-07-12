@@ -13,7 +13,7 @@ quickie pt info about me, for general stuff please check my rentries!!
 ° i also wont talk very much..again, just nervous
 
 
-Pretty much always by my fp (@TRAGICRHYTHM) 24/7, if i move away from you im sorry..
+i like sitting behind my fp i get all cozy so i will move to sit by him..sorry :(
 <!--
 **shuribox/shuribox** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
