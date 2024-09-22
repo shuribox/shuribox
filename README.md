@@ -8,4 +8,4 @@ I AM VERYVERY SHY BUT I LOVE MAKING FRIENDS!!
 
 IF YOU DONT WANT ME INTERACTING WITH YOU JUST HIDE ME!!! D: ill b a bit confused yeah but i wont poke you or your friends for answers..your buisness, not mine!! ^__^
 
-don't be afraid to maybe say out of context JSHJNF i'm not one 2 judge i promise!!! 
+don't be afraid to maybe say anything out of context JSHJNF i'm not one 2 judge i promise!!! 
