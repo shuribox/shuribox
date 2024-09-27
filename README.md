@@ -2,7 +2,7 @@
 
 rmking AUUAUAAAHH x_X
 
-mostly clung 2 my fp but by th rare chance im alone PLEAASE c+h i hate being lonely it genuiely terrifies MEEE :( 
+mostly clung 2 my fp but by th rare chance im alone PLEAASE c+h i do not like being alone it genuiely terrifies MEEE :( 
 
 slingshot, shuriken, steampunk glove id from phighting !! + MORE
 
