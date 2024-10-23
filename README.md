@@ -2,7 +2,9 @@
 
 rmking AUUAUAAAHH x_X
 
-mostly clung 2 my fp but by th rare chance im alone PLEAASE c+h i do not like being alone it genuiely terrifies MEEE :( 
+mostly clung 2 my fp but by th rare chance im alone PLEAASE c+h i do not like being alone :( 
+
+ships are okay to int!!! just, not anything proship...obviously T_T
 
 slingshot, shuriken, steampunk glove id from phighting !! + MORE
 
