@@ -8,7 +8,7 @@ ships are okay to int!!! just, not anything proship...obviously T_T
 
 slingshot, shuriken, steampunk glove id from phighting !! + MORE
 
-i lovee skateboard phighting i kiss him daily dyk? 
+i lovee skateboard phighting i never shut up about him..
 
 I AM VERYVERY SHY BUT I LOVE MAKING FRIENDS!!
 
