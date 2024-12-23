@@ -4,7 +4,7 @@ rmking AUUAUAAAHH x_X
 
 ships are okay to int!!! just, not anything proship...obviously T_T
 
-slingshot, shuriken, steampunk glove id from phighting !! + MORE
+slingshot, steampunk glove id from phighting, !! + MORE
 
 i lovee skateboard phighting i never shut up about him..
 
