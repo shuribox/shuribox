@@ -6,7 +6,7 @@ ships are okay to int!!! just, not anything proship...obviously T_T
 
 slingshot, steampunk glove id from phighting, !! + MORE
 
-i lovee skateboard phighting i never shut up about him..
+i lovee skateboard phighting i yumeship w/ him..
 
 I AM VERYVERY SHY BUT I LOVE MAKING FRIENDS!!
 
