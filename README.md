@@ -8,7 +8,7 @@ slingshot, steampunk glove id from phighting, !! + MORE
 
 i lovee skateboard phighting i yumeship w/ him..
 
-I AM VERYVERY SHY BUT I LOVE MAKING FRIENDS!!
+I AM VERYVERY SHY BUT I LOVE MAKING FRIENDS!! i match the energy of my friends pretty much all the time ,,
 
 IF YOU DONT WANT ME INTERACTING WITH YOU JUST HIDE ME!!! D: ill b a bit confused yeah but i wont poke you or your friends for answers..your buisness, not mine!! ^__^
 
