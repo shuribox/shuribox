@@ -19,6 +19,7 @@ FOR PT I am completely c+h friendly !! I love talking and meeting new people but
 
 (i also dont normally c+h first because the amount of people with that in their name who just moved away from me when i did is alot so ive become a bit wary of that happening again,,!! >_>)
 
+matching skins are encouraged too !! 
 
 
 If you'd rather i dont interact with you feel free to just hide me ! i wont push anyone for answers, i totally get it ^o^
