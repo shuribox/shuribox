@@ -17,7 +17,7 @@ If you associate/are friends with @/GR13F3R/Jester (prev user uunpleasantry) DNI
 
 FOR PT I am completely c+h friendly !! I love talking and meeting new people but my own anxiety prevents me from approaching first but i do try my best!! 
 
-(i also dont c+h first because the amount of people with that in their name who just moved away from me when i did is alot so ive become a bit scared of that happening again ,,!!)
+(i also dont normally c+h first because the amount of people with that in their name who just moved away from me when i did is alot so ive become a bit wary of that happening again,,!! >_>)
 
 
 
