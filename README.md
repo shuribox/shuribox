@@ -1,15 +1,15 @@
 <div align='center'><a href='https://www.free-website-hit-counter.com'><img src='https://www.free-website-hit-counter.com/c.php?d=9&id=178559&s=76' border='0' alt='Free Website Hit Counter'></a><br / ><small>
 
-rmking AUUAUAAAHH x_X
+HIi !! read any attached links 4 more info!! 
+Quick blurb thou :: Im Catnip ! 15, she/he/it my activity varies on this game!!
+I'm generally really friendly towards people i try my best to be kind !! also i use a lot of emoticons if i feel like it, i also like being expressive through text!!
 
-ships are okay to int!!! just, not anything proship...obviously T_T
 
-slingshot, steampunk glove id from phighting, !! + MORE
+If you associate/are friends with @/GR13F3R/Jester (prev user uunpleasantry) DNI . 
 
-i lovee skateboard phighting i yumeship w/ him..
 
-I AM VERYVERY SHY BUT I LOVE MAKING FRIENDS!! i match the energy of my friends pretty much all the time ,,
+FOR PT I am completely c+h friendly !! I love talking and meeting new people but my own anxiety prevents me from approaching first but i do try my best!! 
+(i also dont c+h first because the amount of people with that in their name who just moved away from me when i did is alot so ive become a bit scared of that happening again ,,!!)
 
-IF YOU DONT WANT ME INTERACTING WITH YOU JUST HIDE ME!!! D: ill b a bit confused yeah but i wont poke you or your friends for answers..your buisness, not mine!! ^__^
 
-don't be afraid to maybe say anything out of context JSHJNF i'm not one 2 judge i promise!!! 
+If you'd rather i dont interact with you feel free to just hide me ! i wont push anyone for answers, i totally get it ^o^
