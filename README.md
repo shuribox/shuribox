@@ -4,7 +4,7 @@ HIi !! read any attached links 4 more info!!
 
 Quick blurb thou :: Im Catnip ! 15, she/he/it my activity varies on this game!!
 
-slingshot, xchara, and sprout id !! + more but less attached
+slingshot, xchara, mozelle, and sprout id !! thats kindof it as others just come and go so i dont rlly consider them as ids all that much
 
 I'm generally really friendly towards people i try my best to be kind !! also i use a lot of emoticons if i feel like it, i also like being expressive through text!!
 
