@@ -5,13 +5,13 @@ Quick blurb thou :: Im Catnip ! 16, she/he/it my activity varies on this game!!
 
 VERY expressive through text, i use a ton of capitals, emoticons,, you name it!! Please tell me 2 tone it tone if required! 
 
-i am a selfshipper!! mainly w/ skateboard from phighting (nnonsharing i think??) and wool from enigma !! (sharing haii)
+i am a selfshipper!! mainly w/ skateboard from phighting (nnonsharing i think??) and mequot from die of death! (sharing dw!) you can find more on my pronouns cc page!
 
 ⟡
 
 FOR PT I am completely c+h friendly !! I love talking and meeting new people but my own anxiety prevents me from approaching first ,, i try my best!! 
 
-(i also dont normally c+h first because the amount of people with that in their name who just moved away from me when i did ,, but dont be afraid 2 approach!)
+(i also dont normally c+h first because of experiences with people with that in their name who just moved away from me when i did ,, but dont be afraid 2 approach!)
 
 matching skins are encouraged too !! 
 
