@@ -1,11 +1,11 @@
 
-HIi !! read any attached links 4 more info!! 
+align="center"HIi !! read any attached links 4 more info!! 
 
 Quick blurb thou :: Im Catnip ! 16, she/he/it my activity varies on this game!!
 
 VERY expressive through text, i use a ton of capitals, emoticons,, you name it!! Please tell me 2 tone it tone if required! 
 
-i am a selfshipper!! mainly w/ skateboard from phighting (nnonsharing i think??) and mequot from die of death! (sharing dw!) you can find more on my pronouns cc page!
+i am a selfshipper!! mainly w/ skateboard from phighting (nnonsharing i think??) and mequot from die of death! (sharing dw!) 
 
 ⟡
 
