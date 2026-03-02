@@ -5,7 +5,7 @@
 
 <p align="center">VERY expressive through text, i use a ton of capitals, emoticons,, you name it!! Please tell me 2 tone it tone if required!</p>
 
-<p align="center">i do selfship (sadly) mainly w/ skateboard from phighting (nnonsharing? i. think?? idm if doubles int though) and mequot from die of death! (sharing)</p>
+<p align="center">i do selfship hah a... mainly w/ skateboard from phighting (nnonsharing? i. think?? idm if doubles int though) and mequot from die of death! (sharing)</p>
 
 <p align="center">⟡</p>
 
