@@ -1,3 +1,4 @@
+![Visitor Count](https://profile-counter.glitch.me/{shuribox}/count.svg)
 
 <p align="center">HIi !! read any attached links 4 more info!!</p>
 
