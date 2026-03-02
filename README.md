@@ -1,7 +1,7 @@
 
 <p align="center">HIi !! read any attached links 4 more info!!</p>
 
-<p align="center">Quick blurb thou :: Im Catnip ! 16, she/he/it my activity varies on this game!!</p>
+<p align="center">Im Catnip ! 16, she/he/it my activity varies on this game!!</p>
 
 <p align="center">VERY expressive through text, i use a ton of capitals, emoticons,, you name it!! Please tell me 2 tone it tone if required!</p>
 
