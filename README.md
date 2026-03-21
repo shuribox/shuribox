@@ -1,11 +1,11 @@
 
 <p align="center">HIi !! read any attached links 4 more info!!</p>
 
-<p align="center">Im Catnip ! 16, she/he/it my activity varies on this game!!</p>
+<p align="center">Im Catnip ! 16, she/he/it my activity varies on this game by ALOT</p>
 
-<p align="center">VERY expressive through text, i use a ton of capitals, emoticons,, you name it!! Please tell me 2 tone it tone if required!</p>
+<p align="center">I might have forsaken skins but keep in mind i do not play the game (sorry not sorry, horrid dev team), fans of the media can still interact don't worry! I just don't indulge in the space as much.</p>
 
-<p align="center">i do selfship hah a... mainly w/ skateboard from phighting (nnonsharing? i. think?? idm if doubles int though) and mequot from die of death! (sharing)</p>
+<p align="center">i do selfship hah a... mainly w/ skateboard from phighting (nnonsharing? i. think?? idm if doubles int though), im sharing with any others labelled as my f/o!</p>
 
 <p align="center">⟡</p>
 
