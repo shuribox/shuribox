@@ -5,7 +5,7 @@
 
 <p align="center">I might have forsaken skins but keep in mind i do not play the game (sorry not sorry, horrid dev team), fans of the media can still interact don't worry! I just don't indulge in the space as much.</p>
 
-<p align="center">i do selfship hah a... mainly w/ skateboard from phighting (selective sharing, as long as ur not too weird and respectful ur good ok?), im sharing with any others labelled as my f/o!</p>
+<p align="center">i do selfship(CRINGE), if i list out my f/os we'd be here all day, im pretty much sharing with all of them though</p>
 
 <p align="center">⟡</p>
 
@@ -16,4 +16,4 @@
 <p align="center">matching skins are encouraged too !!</p>
 
 
-<p align="center">If you'd rather i dont interact with you feel free to just hide me ! i wont push anyone for answers, i totally get it ^o^</p>
+<p align="center">If you'd rather i dont interact with you feel free to just hide me ! i wont push anyone for answers since it's your personal business</p>
