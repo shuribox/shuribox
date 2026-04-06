@@ -13,7 +13,7 @@
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎★ I also <b>FAMILIAL YUME</b> Gourdy (DW), CC (FNAF4), and the Locust (Doctor Nowhere) (< yes i'm actually serious about this one 😭), i consider them my kids yes yes
 </details>
 
- 
+       
 
 <p align="center">⟡</p>
 
