@@ -4,12 +4,12 @@
 <p align="center">Im Catnip ! 16, she/he/it my activity varies on this game by ALOT</p>
 
 <p align="center">I might have forsaken skins but keep in mind i do not play the game (sorry not sorry, horrid dev team), fans of the media can still interact don't worry! I just don't indulge in the space as much.</p>
-‎ ‎ ‎ ‎ ‎ <details><summary>‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎  Selfship Info (CRINGE)</summary>
- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ i'm selective sharing but DON'T FREAK OUT i still love talking to doubles, it just may take awhile for me to befriend you!
+‎ ‎ ‎ ‎ ‎ <details><summary>‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎♥︎ Selfship Info (CRINGE)</summary>
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎★ i'm selective sharing but DON'T FREAK OUT i still love talking to doubles, it just may take awhile for me to befriend you!
   
- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ my <b>romantic f/os</b> are Skateboard (PH!), Mequot (DOD), Melanie (REGRETEVATOR), Builderfan (SEWH), and Leopa+Xigeris (FS/DG)
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ♥︎‎ my <b>romantic f/os</b> are Skateboard (PH!), Mequot (DOD), Melanie (REGRETEVATOR), Builderfan (SEWH), and Leopa+Xigeris (FS/DG)
   
- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ I also <b>FAMILIAL YUME</b> Gourdy (DW), CC (FNAF4), and the Locust (Doctor Nowhere) (< yes i'm actually serious about this one 😭), i consider them my kids yes yes
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎★ I also <b>FAMILIAL YUME</b> Gourdy (DW), CC (FNAF4), and the Locust (Doctor Nowhere) (< yes i'm actually serious about this one 😭), i consider them my kids yes yes
 </details></p>
 
 
