@@ -4,7 +4,6 @@
 <p align="center">Im Catnip ! 16, she/he/it my activity varies on this game by ALOT</p>
 
 <p align="center">I might have forsaken skins but keep in mind i do not play the game (sorry not sorry, horrid dev team), fans of the media can still interact don't worry! I just don't indulge in the space as much.</p>‎ 
-
 ‎<p align="center">♥︎ Selfship Info (CRINGE)</p>
 
 ‎<p align="center">★ i'm selective sharing but DON'T FREAK OUT i still love talking to doubles, it just may take awhile for me to befriend you!</p>
