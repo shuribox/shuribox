@@ -4,8 +4,6 @@
 
 <p align="center">I might have forsaken skins but keep in mind i do not play the game (sorry not sorry, horrid dev team), fans of the media can still interact don't worry! I just don't indulge in the space as much.</p>‎ 
 <p align="center">⟡</p>
-
-
 <p align="center">FOR PT I am completely c+h friendly !! I love talking and meeting new people but my own anxiety prevents me from approaching first ,, i try my best!!</p>
 
 <p align="center">(i also dont normally c+h first because of experiences with people with that in their name who just moved away from me when i did ,, but dont be afraid 2 approach! very heavy cuddle comf even if we haven't talked)</p>
