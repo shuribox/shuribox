@@ -11,3 +11,4 @@
 <p align="center">matching skins are encouraged too !!</p>
 
 <p align="center">If you'd rather i dont interact with you feel free to just hide me ! i wont push anyone for answers since it's your personal business</p>
+<p align="center">⟡</p>
