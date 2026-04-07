@@ -1,4 +1,3 @@
-
 <p align="center">HIi !! read any attached links 4 more info!!</p>
 
 <p align="center">Im Catnip ! 16, she/he/it my activity varies on this game by ALOT</p>
@@ -11,6 +10,5 @@
 <p align="center">(i also dont normally c+h first because of experiences with people with that in their name who just moved away from me when i did ,, but dont be afraid 2 approach! very heavy cuddle comf even if we haven't talked)</p>
 
 <p align="center">matching skins are encouraged too !!</p>
-
 
 <p align="center">If you'd rather i dont interact with you feel free to just hide me ! i wont push anyone for answers since it's your personal business</p>
