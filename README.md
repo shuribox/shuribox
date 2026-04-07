@@ -11,4 +11,4 @@
 
 <p align="center">If you'd rather i dont interact with you feel free to just hide me ! i wont push anyone for answers since it's your personal business</p>
 <p align="center">⟡</p>
-I do selfship (CRINGE) and have a couple f/os, i'm selective sharing BUT IN THE SENSE IT'LL TAKE AWHILE FOR ME TO BEFRIEND YOU!! I just wanna make sure we actually get along, i'm still okay talking with doubles! 
+<p align="center">I do selfship (CRINGE) and have a couple f/os, i'm selective sharing BUT IN THE SENSE IT'LL TAKE AWHILE FOR ME TO BEFRIEND YOU!! I just wanna make sure we actually get along, i'm still okay talking with doubles!</p>
