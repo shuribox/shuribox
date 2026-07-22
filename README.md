@@ -15,4 +15,3 @@
 <p align="center">⟡</p>
 <p align="center">I do selfship (CRINGE) and have a couple f/os, i'm sharing tho idm talking 2 doubles!</p>
 <p align="center">My <b>romantic f/os</b> are Skateboard (PH!), Mequot (DOD), Melanie (REGRETEVATOR), BuilderFan (SEWH), Purple (...The among us show HELP) and Leopa+Xigeris (FS/DG)</p>
-<p align="center">I also <b>FAMILIALLY VIEW</b> Gourdy (DW), and CC (FNAF 4) as my children yes yes..
